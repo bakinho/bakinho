@@ -2,5 +2,5 @@
 
 - 🔭 Estou aprendendo programação.
 - 🌱 Tec. de enfermagem.
-- 💬 Entre em contato comigo pelo meu E-mail:victorrosa17k@gmail.com
+- 💬 Entre em contato comigo pelo meu E-mail: victorrosa17k@gmail.com
 - 😄 Ele/dele.
