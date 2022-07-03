@@ -1,4 +1,4 @@
-### Olá pessoa 👋
+### Olá amiguinho 👋
 
 - 🔭 Estou aprendendo programação.
 - 🌱 Tec. de enfermagem.
